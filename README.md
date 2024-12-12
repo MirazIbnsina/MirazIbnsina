@@ -3,7 +3,7 @@
 - 🌱 Research enthusiast... 
 - 💞️ Looking to collaborate...
 - 📫 Reach me ...
-- 👉 www.mirazibnsina.me or
-- 👉 mirazibnsina@outlook.com
+- 👉 www.mirazibnsina.xyz or
+- 👉 mirazibnsina@gmail.com
 
 Thanks for visit 
